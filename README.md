@@ -7,4 +7,6 @@ First, pick 3 artists who match well with your concept.
 
 Second, which genre are you in, like jazz, R&B, synthpop, electronics?
 
-Third, just tell me feelings to describe your project, like refreshment, cool, cute, melancholy, erotic.
+Third, just show me picture to describe your project, which could be refreshing, cool, cute, melancholy, erotic, or freak pictures.
+
+Done? I will recommend your future co-worker's instagram or facebook.
