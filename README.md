@@ -9,4 +9,4 @@ Second, which genre are you in, like jazz, R&B, synthpop, electronics?
 
 Third, just show me picture to describe your project, which could be refreshing, cool, cute, melancholy, erotic, or freak pictures.
 
-Done? I will recommend your future co-worker's instagram or facebook.
+Done? I will recommend your future co-worker's instagram or facebook. Learn some from their spirit!! :)
